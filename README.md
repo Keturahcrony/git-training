@@ -1,1 +1,1 @@
-i am a curious learner
+i am serious at learning
